@@ -1,4 +1,4 @@
-# Hi 👋 I'm Yorexy
+# Hi 👋 I'm Yorenix
 
 🎓 Computer Science Graduate Student
 
